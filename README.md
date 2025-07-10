@@ -1,2 +1,0 @@
-# criminalidad-Per-
-tareaa
